@@ -1,0 +1,1 @@
+## Danalıq sózler
